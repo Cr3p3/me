@@ -7,11 +7,13 @@ soooooo,, haha just general info abt me ^_^
 
 . but any others are fine,, (except my deadnames 🙏🙏🙏)
 
-.✪ pronouns+gender+sexuality:
+.✪ pronouns+gender+sexuality+age:
 
 . idm any pronouns!!
 
 . lesbian woman woooo!!!
+
+. im between 0-100 years old (guess 😋)
 
 .✪ fandoms:
 
